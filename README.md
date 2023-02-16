@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mayursinh-royal
-- 👀 I’m interested in ...Software and Webdevlopment
+- 👀 I’m interested in ...App and Webdevlopment
 - 🌱 I’m currently learning ...new things always
 - 💞️ I’m looking to collaborate on ...freelance projects
 - 📫 How to reach me ...email me on jhalamayur@gmail.com 
